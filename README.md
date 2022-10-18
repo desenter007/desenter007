@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @desenter007
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning how to fix bikes
+- 🌱 I’m currently learning how to make a addons
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me desenter#9399 in discord
 
